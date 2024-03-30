@@ -2,5 +2,5 @@
 - 👀 I’m interested in Design and HTML 
 - 🌱 I’m currently learning Python and C# 
 - 💞️ I’m looking to collaborate on showing my knowledge and being willing to learn 
-- 📫 How to reach me atravésof my social networks mentioned in my profile 
+- 📫 How to reach  my social networks mentioned in my profile 
 - 😄 Pronouns: She/Her 
